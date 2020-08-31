@@ -9,8 +9,3 @@ In the end, we seek help from the cat wizard (Char the cat hehe meow) and also S
 However, Ms Low is slowly fading away, as someone secretly typed an extra line in the book. "and so did Ms Low..." Students of 1G hurriedly tries to rewrite that page, hoping to erase the sentence. 
 In the end, it didnt work coz why not.  jkjk it worked Ms Low is savedddddddddddddddd YAYAAAAAAAAAAAAAAAAA (by 1G and Char the cat hehe meow and also Spikey) 
 I dont think Ms Low would dare to call spikey ugly again... or else... MUAHAHAHAHAHAHAHHAHA
-
-:trollface:
-
-# Got Emmmm
-:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand:
